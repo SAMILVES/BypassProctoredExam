@@ -30,7 +30,7 @@ You can easily bypass and cheat the Respondus LockDown Browser.
 
 Thank you!
 
-## Contract
+## Contact
 
 Telegram: [@ExamPieTeam](https://t.me/ExamPieTeam)
 
